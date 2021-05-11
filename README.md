@@ -13,4 +13,4 @@
 ### How many roles will need to be filled as the "silver tsunami" begins to make an impact?
 * Around 1500 roles.
 ### Are there enough qualified, retirement-ready employees in the departments to mentor the next generation of Pewlett Hackard employees?
-*  There are enough qualified employees in the departments to mentore the next generation of Pewlett Hackard. all of the departments have more than 1800 employees ready to be promoted.
+*  There are enough qualified employees in the departments to mentor the first wave of the silver tsunami. But, the company has around 67,000 senior holding positions. The company should start hiring new employees and current employees. Most departments have more than 1800 employees ready to be mentored. If the company retains most of the seniors leaving at least for a year the company can start retaining retirees at least for a while to be able to mentor new employees. 
